@@ -1,1 +1,1 @@
-# VESM1VS-verkefni-1
+# VESM1VS-verkefni-1. Daníel stefán. (sjá wiki).
